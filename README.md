@@ -1,2 +1,2 @@
-# Nitika
-My personal repository
+# Hi there, I'm Nitika Jain 👋
+
